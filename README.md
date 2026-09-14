@@ -1,1 +1,0 @@
-# FGC_mbti-test
